@@ -1,1 +1,1 @@
-![R](https://github.com/Revenan7/qq/blob/main/IMG_6164.gif)
+![R](https://github.com/user-attachments/assets/cead3f28-df71-4e54-b56f-dfa1f585f002)
